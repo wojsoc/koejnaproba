@@ -4,5 +4,9 @@ w wierszu treci wpisuję to
 w czwartym to 
 i zaatwierdzam
 dfsdfs
-jkljkl
+j
 hfghfghhg
+w dziewiatej
+w desiserw
+w jedenastej
+w xxxxxxx

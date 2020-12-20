@@ -1,2 +1,4 @@
 ato jest  plik teztowy z kompa
+wprowadzona zamiana
+
 
